@@ -1,7 +1,5 @@
-# cantadas
 Me leve nos seus sonhos, 
-que te trago pra minha realidade.
-Se você acredita em salvação, teria como você me salvar da solidão?
+que te trago pra minha realidade.Se você acredita em salvação, teria como você me salvar da solidão?
 Tinha dois docinhos, o brigadeiro e o beijinho. Comi o brigadeiro e qual sobrou?
 Eu não sou Casas Bahia, mas prometo dedicação total a você
 Estou fazendo uma campanha de doação de órgãos! Então, não quer doar seu coração pra mim?
